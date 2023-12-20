@@ -9,6 +9,7 @@
 - 1 Tbsp powdered sugar
 - 1/4 tsp vanilla extract
 - Ice
+- Whatever Ingredient you want
 
 ## How to Make Vanilla Sweet Cream Cold Foam
 
